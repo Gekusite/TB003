@@ -8,4 +8,4 @@
 
 ## Download
 
- **Google Drive:** [Tibia 8.54 Map (Modified)](https://drive.google.com/drive/folders/1Ur1R2tf_tdpPDKQwyblrMf8cFyj4OvGi?usp=sharing)
+ **Google Drive:** N/A
